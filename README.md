@@ -1,0 +1,2 @@
+# corner
+unlimited money
